@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ErikOus
+- 👀 I’m interested in Game Design and lots of other related things
